@@ -1,4 +1,4 @@
-##ntosokwaku##
+ Ntoso Kwaku
 my name is ntoso kwaku john, i was bone on 1'st october 1996.
 i am from borae number 2 in the krachi nchumuru district under oti region.
 i attended nchumuruman senior high school. i am far in complexion.
